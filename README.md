@@ -29,4 +29,14 @@ hi blinkie time but i went crazy and put too many!!!
 <img src="https://files.catbox.moe/u61z9f.gif"/>
 <img src="https://files.catbox.moe/0b61bv.gif"/>
 <img src="https://files.catbox.moe/2bkea0.gif"/>
+<img src="https://files.catbox.moe/g6cv0f.gif"/>
+<img src="https://files.catbox.moe/rc0n1d.gif"/>
+<img src="https://files.catbox.moe/amga94.gif"/>
+<img src="https://files.catbox.moe/r5zofv.gif"/>
+<img src="https://files.catbox.moe/psva73.gif"/>
+<img src="https://files.catbox.moe/hodhrz.gif"/>
+<img src="https://files.catbox.moe/2zyvel.gifv"/>
+<img src="https://files.catbox.moe/uhz985.gif"/>
+<img src="https://files.catbox.moe/0nrba6.gif"/>
+<img src=""/>
 <img src=""/>
