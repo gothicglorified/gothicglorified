@@ -1,16 +1,31 @@
-## Hi there 👋
-
-<!--
-**gothicglorified/gothicglorified** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+hi blinkie time but i went crazy and put too many!!!
+<img src="https://files.catbox.moe/ml1q0p.gif"/>
+<img src="https://files.catbox.moe/48sdcu.gif"/>
+<img src="https://files.catbox.moe/ffvnb0.gif"/>
+<img src="https://files.catbox.moe/yinbz8.gif"/>
+<img src="https://files.catbox.moe/fgurq6.gif"/>
+<img src="https://files.catbox.moe/lncqcr.gif"/>
+<img src="https://files.catbox.moe/pxy5ks.gif"/>
+<img src="https://files.catbox.moe/b8a19x.gif"/>
+<img src="https://files.catbox.moe/l4ufsf.gif"/>
+<img src="https://files.catbox.moe/t259ry.gif"/>
+<img src="https://files.catbox.moe/fxupyj.gif"/>
+<img src="https://files.catbox.moe/ua7x0t.gif"/>
+<img src="https://files.catbox.moe/nze2o3.gif"/>
+<img src="https://files.catbox.moe/vdxhru.gif"/>
+<img src="https://files.catbox.moe/a8ewmm.gif"/>
+<img src="https://files.catbox.moe/7ccxl9.gif"/>
+<img src="https://files.catbox.moe/usjdh6.gif"/>
+<img src="https://files.catbox.moe/52hxcp.gif"/>
+<img src="https://files.catbox.moe/kjqt5q.gif"/>
+<img src="https://files.catbox.moe/m5r8zo.gif"/>
+<img src="https://files.catbox.moe/77cxqd.gif"/>
+<img src="https://files.catbox.moe/cxuoa9.gif"/>
+<img src="https://files.catbox.moe/tudji9.gif"/>
+<img src="https://files.catbox.moe/7h9mo5.gif"/>
+<img src="https://files.catbox.moe/zpmoid.gif"/>
+<img src="https://files.catbox.moe/xnp9yx.gif"/>
+<img src="https://files.catbox.moe/u61z9f.gif"/>
+<img src="https://files.catbox.moe/0b61bv.gif"/>
+<img src="https://files.catbox.moe/2bkea0.gif"/>
+<img src=""/>
